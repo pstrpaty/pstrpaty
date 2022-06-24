@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @pstrpaty
+- 👋 Hi, I’m gerard
 - 👀 I’m interested in ...hepatic encelophathy
 - 🌱 I’m currently learning ...nutrition
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on ...low sodium diet
+- 📫 How to reach me ...gerardripley@hotmail.com
+- Politics; not Trump, just somebody who listens to him AND others.
+- .
 
 <!---
 pstrpaty/pstrpaty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
