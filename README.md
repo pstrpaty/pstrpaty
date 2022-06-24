@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...nutrition
 - 💞️ I’m looking to collaborate on ...low sodium diet
 - 📫 How to reach me ...gerardripley@hotmail.com
-- Politics; not Trump, just somebody who listens to him AND others.
+- Politics; not Trump nor his puppet, just somebody who listens to him AND others.
 - .
 
 <!---
